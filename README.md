@@ -6,4 +6,3 @@
 
 # byi !
 <p> feel free to int! i love talking to ppl </p>
-<p> i may be dry sometimes , i run out of energy rlly quickly! </p>
