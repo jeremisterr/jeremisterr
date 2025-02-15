@@ -1,4 +1,6 @@
-# hi guys
-i dont understand github
+# about me !
+im k!!! im 16 i use he/him and im a bi trans gay! 
+# byi
 yay
-# header 2
+# interests <3
+yay 2
