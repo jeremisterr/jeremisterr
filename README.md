@@ -4,5 +4,5 @@
 <p> my top interests are hermitcraft/life series/empires , cookie run kingdom , project sekai , nintendo </p>
 <p> (but more are listed on my strawpage! i have a lot more) </p>
 
-# byi !
-<p> feel free to int! i love talking to ppl </p>
+# I DONT KNOW WHAT ELSE TO PUT
+HELP
