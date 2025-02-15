@@ -1,4 +1,4 @@
-![alt text](jeremisterr/assets/images/E76D07CF-68F7-41E0-A63E-AF00E00BF3FC.png)
+![alt text](main/assets/images/E76D07CF-68F7-41E0-A63E-AF00E00BF3FC.png)
 # about me !
 <p> hi im k!!! im 16 i use he/him and im a bisexual trans guy! </p>
 </p> im australian/filipino and my timezones is aest! </p>
