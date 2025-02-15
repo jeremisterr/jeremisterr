@@ -1,4 +1,4 @@
-![alt tetx](https://www.tumblr.com/chachachannah/770489441295974400/to/img.png)
+
 # about me !
 <p> hi im k!!! im 16 i use he/him and im a bisexual trans guy! </p>
 </p> im australian/filipino and my timezones is aest! </p>
