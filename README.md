@@ -4,5 +4,8 @@
 <p> my top interests are hermitcraft/life series/empires , cookie run kingdom , project sekai , nintendo </p>
 <p> (but more are listed on my strawpage! i have a lot more) </p>
 
+## btw u should totally look at my strawpage
+jeremister.straw.page
+
 # I DONT KNOW WHAT ELSE TO PUT
 HELP
