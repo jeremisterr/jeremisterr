@@ -4,4 +4,8 @@
 <p> my top interests are hermitcraft/life series/empires , cookie run kingdom , project sekai , nintendo </p>
 <p> (but more are listed on my strawpage! theres so much more) </p>
 
+# for ponytown !
+<p> im usually c+h int i love talking to ppl! (specifically hermithillers.. you guys r all so cool ..) </p>
+<p> if im with my friends im usually dniuf ,  but i'll try remember to state this !! </p>
+
 <h3> pfp by mudboowl </h3>
