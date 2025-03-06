@@ -2,6 +2,7 @@
 <p> hi!! u can call me k or martyn !! im 16 i use he/him and im a bisexual trans guy! </p>
 </p> im australian/filipino and my timezone is aest! </p>
 <p> my top interests are hermitcraft/life series/empires , cookie run kingdom , project sekai , nintendo </p>
+<p> i rlly like mean gills guys RAGHHHHH ( and treebark ,, , )</p>
 <p> (but more are listed on my strawpage! theres so much more) </p>
 
 # for ponytown !
