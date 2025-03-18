@@ -7,7 +7,6 @@
 
 # for ponytown !
 <p> im usually c+h int i love talking to ppl! (specifically hermithillers.. you guys r all so cool ..) </p>
-<p> if im with my friends im usually dniuf ,  but i'll try remember to state this !! </p>
 <p> im usually martyn ! im so sane about him btw ( i lie )</p>
 
 <h3> pfp by mudboowl </h3>
