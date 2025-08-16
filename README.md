@@ -10,3 +10,5 @@
 <p> im usually martyn ! im so sane about him btw ( i lie )</p>
 
 <h3> pfp by mudboowl </h3>
+
+<p> im so normal about fob guys i swear (violent sobbing)</p>
