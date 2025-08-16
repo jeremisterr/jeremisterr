@@ -1,5 +1,5 @@
 # about me !
-<p> hi!! u can call me k or martyn !! im 16 i use he/him and im a bisexual trans guy! </p>
+<p> hi!! im k !! im 16 i use he/him and im a bisexual trans guy! </p>
 </p> im australian/filipino and my timezone is aest! </p>
 <p> my top interests are hermitcraft/life series/empires , bands(especially fob!) , cookie run kingdom , project sekai , nintendo </p>
 <p> i rlly like mean gills guys RAGHHHHH ( and treebark ,, , )</p>
